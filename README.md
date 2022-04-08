@@ -1,3 +1,4 @@
+<!---
 - 👋 Hi, I’m @nevadex
 - 👀 I’m interested in ... Low-level computing and cybersec
 - 🌱 I’m currently learning ... Front-end development (python bald) / MVC
@@ -5,6 +6,15 @@
 - 💞️ I’m looking to collaborate on ... Collaboration? Pfft
 - 📫 How to reach me ... Nevadex#6434 on Discord
 - 💵 ETH/ETC ... `0x9bcA47265f695b8FB5E307aedA6Bc428494EbED4`
+--->
+
+> *"genius gone clueless"* - kanye west  
+  
+hobby acc  
+dont spam me  
+i really hate edu tech companies  
+`Nevadex#6434` @ Discord  
+ETH/ETC @ `0x9bcA47265f695b8FB5E307aedA6Bc428494EbED4`  
 
 <!---
 nevadex/nevadex is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
