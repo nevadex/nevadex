@@ -11,8 +11,8 @@
 > *"genius gone clueless"* - kanye west  
   
 hobby acc  
-dont spam me  
-i really hate edu tech companies  
+kali linux is not hacker linux  
+tri-state area  
 `Nevadex#6434` @ Discord  
 ETH/ETC @ `0x9bcA47265f695b8FB5E307aedA6Bc428494EbED4`  
 
