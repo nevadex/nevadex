@@ -8,13 +8,16 @@
 - 💵 ETH/ETC ... `0x9bcA47265f695b8FB5E307aedA6Bc428494EbED4`
 --->
 
-> *"genius gone clueless"* - kanye west  
+> *"homies in a glass house should not throw stones"* - kanye west  
   
 hobby acc  
-kali linux is not hacker linux  
-tri-state area  
+go, python, c#, java  
+hmu for collab   
+  
 `Nevadex#6434` @ Discord  
 ETH/ETC @ `0x9bcA47265f695b8FB5E307aedA6Bc428494EbED4`  
+
+> *"I made a discovery today. I found a computer"*
 
 <!---
 nevadex/nevadex is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
