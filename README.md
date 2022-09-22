@@ -8,7 +8,7 @@
 - 💵 ETH/ETC ... `0x9bcA47265f695b8FB5E307aedA6Bc428494EbED4`
 --->
 
-> *"homies in a glass house should not throw stones"* - kanye west  
+> *"YOUNG AND WE ALIVE! WE NEVER GONNA DIE"* - kanye west  
   
 hobby acc  
 go, python, c#, java  
@@ -17,7 +17,7 @@ hmu for collab
 `Nevadex#6434` @ Discord  
 ETH/ETC @ `0x9bcA47265f695b8FB5E307aedA6Bc428494EbED4`  
 
-> *"I made a discovery today. I found a computer"*
+eastern class of 2026
 
 <!---
 nevadex/nevadex is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
