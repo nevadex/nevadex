@@ -8,7 +8,7 @@
 - 💵 ETH/ETC ... `0x9bcA47265f695b8FB5E307aedA6Bc428494EbED4`
 --->
 
-> *"YOUNG AND WE ALIVE! WE NEVER GONNA DIE"* - kanye west  
+> *"five star dishes, different exotic fishes"* - cyhi the prynce  
   
 hobby acc  
 go, python, c#, java  
